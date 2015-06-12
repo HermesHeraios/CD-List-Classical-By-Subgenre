@@ -101,6 +101,44 @@ Oh, okay. One time I had a pet rabbit. Then it *died*.
 
 What. Was that not a good story. 
 
+Continuation: You know it's like, I wish I had a girlfriend to help me decide, at the very least, you know, if we have very much in the way of salvageable material from white people and Vienna, or maybe just, you know, *put it in your hat*. 
+
+You know, I'm not going to bullshit. Trustworthy help, c.f. my Lennon-Harrison dialog from the other page.... But, I'm not gonna bullshit, am I? 
+
+I mean, do you want to read my criticism of opera? No.... No, you don't really want that. So fuck opera, and fuck guys like Beethoven who are above the law, *and glad of it*....  
+
+So you clear away some debris, there seems to something left: Tchaikovsky and Haydn seem pretty *human*, don't you think: once Beethoven and a couple of people are out of the way, Mozart is really in the light: he's, ill.... I notice he's somewhat *ill*.... Ah.... Ah.... You know, what, Mozart: you're tied. You're in a tie with Johann Strauss-- he's just as good as you are. *You're bleeding, buddy: you're gonna wanna press that down on it, 'cause it's not Clementi that needs it*....
+
+Eventually it seems to turn into a real fucker mess. 
+
+And then it's like: Ah.... Ah.... There might be just one little bit, more of a *catastrophe*, concerning Vienna and white people. 
+
+Vienna and white people cannot afford another catastrophe. I hope you're, I don't know. I hope you're wrong. 
+
+*Well*.... It's just that, you know, maybe the reason they waited with ballet until it was half past eleven while pouring money through the silent strings for years, was because all the trumpet players were abusive racist types who'd call in the army and rape their wives and sisters before allowing.... "too much, dancing". And basically they were afraid.... Uh.... (It was, a failure, maybe).... Maybe not, though. There must be some real moral fiber left after all the catastrophes. 
+
+*The bodies of dead and half-dead and dying composers are strewn across the field of battle. The forces of evil shatter the puny defenses and advance in every direction.* 
+
+Hmm.... This is the point where I have to start caring more about my family, my future family, than my education.... At least the theory was fully tested. 
+
+Make a note, for the time travelers. Vienna and Germany were interesting experiments. *But they failed*. Re-test in more favorable conditions.... *Eventually, maybe*. 
+
+Wait, what happened. 
+
+*Eventually, maybe*. 
+
+Oh. We lost. We lost the fight. 
+
+Der Krieg ist verlorn. Do was Sie Wohl. 
+
+Molotov: That was funny. That was a good one.
+
+Shut up, Molotov. 
+
+Molotov: It's not like it's my fault. 
+
+Now is not the time. *an artillery shell lands literally within feet of the evacuation device* Yeah, now is definitely not the time. 
+
 ~ Small Instrumentation 
 
 You know how little kids always get taught about "The Four Seasons" and "The Surprise Symphony"? Yes. I hate small children as well. Reciprocity, ha. *waves hands* 
