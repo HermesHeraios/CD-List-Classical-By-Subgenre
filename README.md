@@ -77,11 +77,29 @@ I mean, an orchestra is basically the result, it seems to me, of anthropologists
 
 But, yeah, every *possible* instrument: that's art, white people style. I mean, I went in, I, well, I had no instructions, really, from any *"mala gente"*, right.... So.... Well, I should do something versatile, right. Piano. Done. Done and dusted. Of course, I automatically chose the more "intellectual" side of reality: automatic. But some of these orchestra instruments-- I mean, if you looked at the whole music industry and you wanted to do some weird estimate of the industry participation of different instruments, the corners of the orchestra, the dusty corners of the orchestra.... Eh, it's mostly empty corners. Like in "The Soloist", where Badtoven's Uncle Tom is required to shame white people into going back to work in the castle: "Nobody likes Uncle Tom's Tin Cap Flute", you know.... You know, if white people are too bored or ashamed of castle life, then maybe we don't need our wise masters from the New York Times to brainwash some black stooges into submission. (That's right, Wynton Marsalis: you are a slave. You are a slave, and you are a snob....) I mean, the bottom line is I look at some of these instruments, and I ask myself where they get sheet music, even, or where they think they're going to go or what they think they're going to do, or why people just assume that people are always going to be on beck and call to our wise masters from NPR, always ready to play the Tin Hat Flute at a moment's notice. (Stand up, break free.) I mean: are these people paid, tricked or proud, you know. What's the deal. What's the deal, America....
 
-I know, considering that if you look at it from the POV of symphony writers and not the symphony machine it often seems more positive, Yeah.... But, I mean.... Who has the guts to tame a machine: you know conductors are just getting paid, I mean like: this is what the brass is gonna give me, not-- oh, yeah, trumpet work, sure.... And I think, just generally, you talk *so* over subtle to absurd skiddish people, that in the end, a common problem is to end up talking about things that aren't *really* there: when you get bad, that's the point....
+I know, considering that if you look at it from the POV of symphony writers and not the symphony machine it often seems more positive, Yeah.... But, I mean.... Who has the guts to tame a machine: you know conductors are just getting paid: you need *writers, thinkers, dreamers*, not just people to deploy the tin cap flute according to office-worker regs.... I mean like: this is what the brass is gonna give me, not-- oh, yeah, trumpet work, sure.... And I think, just generally, you talk *so* over subtle to absurd skiddish people, that in the end, a common problem is to end up talking about things that aren't *really* there: when you get bad, that's the point....
 
 I know, right. I'm a raider out of the North, out of Sweden....
 
 ^ Concertos
+
+I mean, before I was thinking: Mozart is like the concerto, the challenger, the soloist, and Haydn is the orchestra that absorbs that and keeps moving, and which is always gonna be there.... But now I'm starting to think, I failed in terms of my analysis-- as much as we *should* not be deindividuated, the machine can present, to the white person, a formidable obstacle. Right.... 
+
+Bach, you must like solo piano, right. Your village is poor. Don't get me started about the moron prestige of non-keyboard keyboard instruments, *or whatever*, but yeah, if Bach just wakes up one day and tells Pastor Gabe-- You know, I'd like an extra sixty people on payroll-- Right. Pastor Gabe says, Yeah. Maybe go fuck yourself. 
+
+*Taylor Swift wakes up from a bad dream where she was the banker's daughter who was never told she couldn't have something that she asked for, and who only ever asked for pain, pain, and more pain: she wakes up, screaming, screaming, screaming.*
+
+By the days of Haydn's school the material restrictions were starting to lift, which is great for symphony. But social chauvinism. *Ooh.*.... *Ooh.*.... You see that trumpet player? You're looking at what he would beat you with, if he caught you dancing.... *Oh, my god, that doesn't make sense*: isn't he a musician? Are farmers against chewing?.... Well, welcome to classical music. *Welcone to ancient times.* Welcome to the stooge mob castle....
+
+I mean: I know that this is a great way to get ignored, right: having an idea. "Roll Over Badtoven" has been on the air for months and months now, and I still get paid. The Napoleon of music will reign forever. I don't care how many people have to die inside. 
+
+Hmm. 
+
+Yeah, but one time there was a theme and a development.
+
+Oh, okay. One time I had a pet rabbit. Then it *died*.
+
+What. Was that not a good story. 
 
 ~ Small Instrumentation 
 
